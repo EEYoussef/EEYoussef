@@ -5,7 +5,6 @@
 ## I'm a Wife, Mother, Student, and Junior Web Developer!!
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other content creators
-- 🥅 2022 Goals: learning .Net
 - ⚡ Fun fact: I love creating fancy cakes for my family and friends.
 
 ### Connect with me:
